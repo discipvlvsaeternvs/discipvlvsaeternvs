@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @discipvlvsaeternvs
+- 👀 I’m interested in lifelong learning
+- 🌱 I’m currently learning the Latin language
